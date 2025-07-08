@@ -31,4 +31,4 @@ BT/磁力分享社区：虽然存在版权与下载风险，但部分论坛（�
 对于希望免费观看日本AV的用户，建议从内容聚合平台入手，结合影片预览、番号搜索功能使用。不要轻易点击不明链接或安装第三方插件，保护设备与账号安全。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/july4562/45777 ）</span>
